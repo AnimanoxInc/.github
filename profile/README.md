@@ -37,7 +37,7 @@ At Animanox, we follow a structured development process that ensures our project
 
 ## 📞 Contact us
 
-For any questions, feel free to email us at info@animanox.us or WhatsApp us at +1 (242) 822-6270.
+For any questions, feel free to email us at info@animanox.us or WhatsApp us at +1 (970) 696-8698.
 
 ## 🔗 Follow us
 
